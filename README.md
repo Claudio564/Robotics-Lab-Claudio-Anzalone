@@ -1,1 +1,0 @@
-# Robotic-Lab-Claudio-Anzalone
